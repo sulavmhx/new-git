@@ -1,0 +1,2 @@
+TRENDING SINCE 1950
+The new Classic 350 traces its bloodline to the 1950 Royal Enfield G2—and this perfectly-proportioned silhouette has been in fashion ever since. In its gleaming new avatar, the Classic continues to represent an era in which motorcycles had impeccable road manners and unforgettable style. From burnished bronze to desert blue, this thoroughbred motorcycle is now available in seven striking new colourways inspired by its past, present and future...a...a..a
