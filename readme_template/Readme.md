@@ -6,11 +6,11 @@
 
 ## 🚀 About Me
 
-I am a passionate student developer currently learning **Web Development** at **KIST College**. I love turning ideas into reality through code.
+I am a passionate developer currently learning **Web Development** at **KIST College**. I love turning ideas into reality through code.
 
 - 🌱 I’m currently learning **HTML, CSS, and JavaScript**
 - 👯 I’m looking to collaborate on **Open Source Projects**
-- 💬 Ask me about **Anything! I'm happy to help**
+- 💬 Ask me about **Anything! I'm happy to help others**
 - ⚡ Fun fact: **I love debugging until midnight!**e
 - 👨‍🏫 Mentored by: [Sulav man hada](https://github.com/sulavmhx)
 
